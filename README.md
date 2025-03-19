@@ -4,7 +4,7 @@
 
 Anime Sama APK is a dedicated anime streaming app that allows users to watch their favorite anime series and movies for free. Designed for anime lovers, this app offers high-quality streaming, fast servers, and a vast anime library covering all genres. It provides a smooth user experience, making it one of the best mobile streaming apps for anime fans worldwide.
 
-# Dowwnload Here: 👉 [Anime Sama APK (Android App)](https://heyapks.com/) 👈
+# Dowwnload :👉 [Anime Sama APK (Android App)](https://heyapks.com/) 👈
 
 ![image](https://github.com/user-attachments/assets/8e8824dd-b754-4127-98bd-6c0527971176)
 
